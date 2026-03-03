@@ -5,6 +5,7 @@ Mapping Industry and Transportation in South Korea – UVSQ 2025-2026
 
 En quoi l’organisation des réseaux de transport, entre ports, autoroutes et plates-formes logistiques, structure-t-elle la géographie industrielle de la Corée du Sud ?
 
+> Pour accèder au PDF -> [South_Korea](South_Korea.pdf)
 
 ## Méthodologie
 
